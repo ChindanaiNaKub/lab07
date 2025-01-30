@@ -8,3 +8,8 @@ checkpoint #2
 
 ![ภาพ](https://github.com/user-attachments/assets/580431a6-e592-4fd9-9415-f599abf29d19)
 
+checkpoint #3 
+
+![ภาพ](https://github.com/user-attachments/assets/1ce0fbed-6838-4d51-86e1-e8a08175fbe6)
+
+
